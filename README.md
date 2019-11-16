@@ -7,4 +7,4 @@ Reference:
 
 作者：蔡剑平
 
-主页：http://www.maththinker.cn/caijp
+个人主页：http://www.maththinker.cn/caijp
